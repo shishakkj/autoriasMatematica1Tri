@@ -1,0 +1,1 @@
+# autoriasMatematica1Tri
